@@ -1,0 +1,1 @@
+# Aspectos-G.6
